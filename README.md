@@ -80,12 +80,7 @@ NA
 **ADJOURNMENT:**
 There being no further business, the meeting was adjourned at 10
 
-_________AM________________
-[Signature]
-[Arun], President
-
-__________________________
-[Signature]
-[Name], Secretary
-
-Please consult with a legal professional to ensure that these documents meet your specific requirements and comply with local laws.
+Arun Maroli
+[signed]
+President
+CALINFONET Inc
