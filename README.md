@@ -1,4 +1,4 @@
-**CALINFONET Inc By-Laws:**
+# CALINFONET Inc By-Laws:
 
 **ARTICLE I: NAME AND LOCATION**
 
@@ -81,6 +81,9 @@ NA
 There being no further business, the meeting was adjourned at 10
 
 Arun Maroli
+
 [signed]
+
 President
+
 CALINFONET Inc
